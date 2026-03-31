@@ -1,7 +1,7 @@
 # infinix hot 40i: Spesifikasi Lengkap, Harga Terbaru, dan Tempat Beli Termurah
 
 <div align="center">
-  <img src="https://fdn2.gsmarena.com/vv/bigpic/infinix-hot-40i.jpg" alt="infinix hot 40i" width="300" style="max-width:300px; border-radius:20px;">
+  <img src="https://fdn2.gsmarena.com/vv/bigpic/infinix-hot-40i.jpg" alt="infinix hot 40i" width="250" style="max-width:250px; border-radius:20px;">
 </div>
 
 **1 April 2026** – Pasar smartphone tanah air kembali diramaikan dengan kehadiran **infinix hot 40i**, ponsel terbaru dari **Infinix** yang menawarkan kombinasi menarik antara performa, fitur, dan harga terjangkau.
@@ -58,8 +58,8 @@ Jangan sampai kehabisan! Dapatkan **infinix hot 40i** dengan harga terbaik dan g
 
 
 <div align="center">
-  <a href="https://www.gsmarena.com/itel_p55-12808.php" target="_blank">
-    <img src="https://cdn.shopify.com/s/files/1/0506/6273/6069/files/button_shopee.jpg" alt="Beli di Shopee" width="250" style="max-width:250px; width:100%; height:auto; border-radius:8px;">
+  <a href="https://fdn2.gsmarena.com/vv/bigpic/infinix-hot-40i.jpg" target="_blank">
+    <img src="https://cdn.shopify.com/s/files/1/0506/6273/6069/files/button_shopee.jpg" alt="Beli di Shopee" width="50" style="max-width:50px; width:50%; height:auto; border-radius:8px;">
   </a>
 </div>
             
@@ -75,7 +75,7 @@ Jangan sampai kehabisan! Dapatkan **infinix hot 40i** dengan harga terbaik dan g
 
 **Kesimpulan:** Dengan harga **Rp 1.699.000**, infinix hot 40i menawarkan nilai plus yang kompetitif di kelasnya. Cocok bagi Anda yang mencari HP dengan spesifikasi mumpuni di budget terbatas.
 
-👉 **[Klik di sini untuk membeli infinix hot 40i sekarang juga!](https://www.gsmarena.com/itel_p55-12808.php)**
+👉 **[Klik di sini untuk membeli infinix hot 40i sekarang juga!](https://fdn2.gsmarena.com/vv/bigpic/infinix-hot-40i.jpg)**
 
 ---
 *Harga dapat berubah sewaktu-waktu. Link afiliasi membantu mendukung konten ini.*
