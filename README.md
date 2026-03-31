@@ -59,7 +59,7 @@ Jangan sampai kehabisan! Dapatkan **infinix hot 40i** dengan harga terbaik dan g
 
 <div align="center">
   <a href="https://fdn2.gsmarena.com/vv/bigpic/infinix-hot-40i.jpg" target="_blank">
-    <img src="https://cdn.shopify.com/s/files/1/0506/6273/6069/files/button_shopee.jpg" alt="Beli di Shopee" width="50" style="max-width:50px; width:50%; height:auto; border-radius:8px;">
+    <img src="https://blogger.googleusercontent.com/img/a/AVvXsEgJOetvPIl4zA7gGd0M7N7Tu96srFt4s_QbrPF8Rs9HZbwYeBJ8DlzU3VPIjXObGMz0Ogp9x0eyf7yx0b2xx5vexf8EhoQfslPKJnYWxYOfuQnZctBCdxiD3zQTx8Px8-6QDVodH4EyH6hpoICXNcurQ_pq5UvrXmMMSVnXy8IV-ogWKjMPX98IqpPC=s1338" alt="Beli di Shopee" width="50" style="max-width:50px; width:50%; height:auto; border-radius:8px;">
   </a>
 </div>
             
